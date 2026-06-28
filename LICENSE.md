@@ -1,4 +1,4 @@
-# 
+# Professional binance futures bot workflow for Mac OS | Elite binance futures bot workflow for PC Windows. Featuring momentum analysis and decentralized exchange api — optimized for maximum performance.
 
 
 
